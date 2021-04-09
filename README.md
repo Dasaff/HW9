@@ -1,3 +1,0 @@
-# Eagles
-# Eagles
-# Eagles
